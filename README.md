@@ -19,11 +19,11 @@
 
 - 💬 Ask me about **Tinda**
 
-- 📫 How to reach me **yash@kabadi.com**
+- 📫 How to reach me *babupandey923@gmail.com*
 
-- 📄 Know about my experiences [Hehe](Hehe)
+- 📄 Know about my experiences *nothing special to know about*
 
-- ⚡ 
+- ⚡Fun fact  *I can touch the floor without touching it* 
 
 
 <h3 align="left">Languages and Tools:</h3>
