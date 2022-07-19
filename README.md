@@ -23,7 +23,7 @@
 
 - 📄 Know about my experiences [Hehe](Hehe)
 
-- ⚡ Fun fact **I can lick floor without touching it**
+- ⚡ 
 
 
 <h3 align="left">Languages and Tools:</h3>
