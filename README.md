@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on **Anything**
 
-- 🤝 I’m looking for help with *hmmmm*
+- 🤝 I’m looking for help with someone
 
 - 👨‍💻 All of my projects are available at [Sed](Sed)
 
