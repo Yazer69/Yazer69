@@ -19,7 +19,7 @@
 
 - 💬 Ask me about **Tinda**
 
-- 📫 How to reach me *babupandey923@gmail.com*
+- 📫 How to reach me *minimilitakillers@gmail.com*
 
 - 📄 Know about my experiences *nothing special to know about*
 
