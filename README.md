@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Nothing**
 
-- 🌱 I’m currently learning **HTML (still on github *lol*)**
+- 🌱 I’m currently learning **java script** 
 
 - 👯 I’m looking to collaborate on **Anything**
 
